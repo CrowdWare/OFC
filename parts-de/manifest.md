@@ -72,18 +72,64 @@ Und gemeinsam handeln.
 
 ---
 
-#### 5. Wir stehen für die goldene Regel
+![](begood.png)
+#### 5. Wir stehen für die gelebte goldene Regel
+  
+**„Tue allen Lebewesen Gutes.“**
 
-> **„Tue keinem Lebewesen Leid zu.“**
+Diese Regel ist keine Moral.  
+Sie ist ein Ruf.  
+Ein inneres Leuchten.  
+Ein Erinnern an das, was wir wirklich sind:  
+**Mitwesen – nicht Besitzer.**
 
-Weder durch Taten,  
-noch durch Sprache,  
-noch durch Ignoranz.
+---
 
-Wir achten das Leben.  
-Die Erde.  
-Die Tiere.  
-Und einander.
+Was bedeutet das im Alltag?
+
+🌱 **Wenn du pflanzt**,  
+tu es mit Liebe.  
+Sprich mit den Samen.  
+Berühre die Erde mit Achtung.  
+Ernte nur, was bereit ist, gegeben zu werden.
+
+🔥 **Wenn du kochst**,  
+tue es für alle.  
+Nicht als Dienst, sondern als Gabe.  
+Füttere nicht nur den Magen – sondern auch die Seele.
+
+🪵 **Wenn du baust**,  
+frag den Ort zuerst:  
+„Darf ich hier wirken?“  
+Nutze, was da ist. Lass Raum für das, was lebt.
+
+🧘 **Wenn du sprichst**,  
+wähle Worte, die aufrichten.  
+Auch in Konflikten.  
+Wahrheit ohne Wunden. Klarheit ohne Härte.
+
+🐾 **Wenn du Tieren begegnest**,  
+sieh sie nicht als Ding, sondern als Lehrer.  
+Sie sind Teil des Kreises.  
+Sie spüren, ob du ihnen gut tust.
+
+🌀 **Wenn du dich selbst behandelst**,  
+frag dich:  
+„Würde ich so auch mit einem Kind, einem Freund, einem Baum umgehen?“  
+Denn du bist ein Teil des Lebendigen.  
+Auch für dich gilt:  
+> **„Tue dir Gutes.“**
+
+---
+
+So wird aus einem Satz  
+eine Praxis.  
+Ein Feld.  
+Ein Lebensweg.
+
+✨ Und so heilt die Erde.  
+Nicht durch Widerstand.  
+Sondern durch Liebe in Handlung..
 
 ---
 
